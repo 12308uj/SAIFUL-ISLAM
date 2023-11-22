@@ -1,2 +1,2 @@
 # SAIFUL-ISLAM
-I am b-tech computer science student lovely professional university
+I am b-tech computer science engineering student in lovely professional university
